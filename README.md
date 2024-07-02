@@ -1,1 +1,0 @@
-# CodeAI-KJSIT-ML-Bootcamp-24
